@@ -1,1 +1,2 @@
 # GTD
+F*** the media
